@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @xnaveenx
-- 👀 I’m interested in Programming and Computer related stuffs...and Blockhain.
+- 👀 I’m interested in Programming and Computer related stuffs...and Blockchain.
 - 🌱 I’m currently Pursuing my Engineering degree at Rajalakshmi Institute of Technology
 - 📫 Reach me at naveen010210@gmail.com
 
